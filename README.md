@@ -6,6 +6,10 @@ Welcome to **Kitchen Chaos**! Get ready to unleash your culinary creativity in t
 
 In **Kitchen Chaos**, you'll have access to a fully equipped kitchen with a cutting counter, stove, and an array of fresh ingredients at your disposal. Sharpen your knife skills as you meticulously chop, slice, and dice various ingredients on the cutting counter, from juicy tomatoes to crisp lettuce and zesty onions.
 
+
+![Alt Text](https://media2.giphy.com/media/8q7YZfZNwGt3Ic9I3R/giphy.gif)
+
+
 ## Sizzling Stove Action
 
 Once you've prepared the perfect assortment of toppings, head over to the sizzling stove and take charge of cooking the perfect patty. Watch as it sizzles and sears to perfection, ensuring that it's juicy on the inside and delightfully crispy on the outside.
