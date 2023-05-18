@@ -26,10 +26,8 @@ But the real magic happens when you combine all the elements together. Experimen
 ![Alt Text](https://media1.giphy.com/media/r7Wy1KBjGnnwri2WEB/giphy.gif)
 
 
-## Unlock Exciting Rewards
+## The Delivery Counter
 
-As you progress through the game, you'll unlock new ingredients, sauces, and even special toppings that add an extra twist to your creations. Serve your delicious masterpieces to an ever-growing line of hungry customers and receive their feedback to improve your skills and unlock exciting rewards.
+At the bustling Delivery Counter, it's time to ensure that the dishes you prepare match the orders placed by the customers. This fast-paced and challenging section of the game tests your attentiveness and ability to deliver the right burger to the right customer.
 
-So, put on your chef's hat and get ready to embark on a burger-making adventure like no other. **Kitchen Chaos** will test your precision, creativity, and taste buds as you strive to become the ultimate burger connoisseur!
-
-Enjoy the delightful journey of burger making in your game, **Kitchen Chaos**!
+![Alt Text](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExOGVhNjk1YmE1NTc3MGMwNDVhYjg1ODNlYjY0MjIwNTI0ZTE3OWVjOSZlcD12MV9pbnRlcm5hbF9naWZzX2dpZklkJmN0PWc/sSI7gsDmDDvRMGXMg4/giphy.gif)
