@@ -10,13 +10,16 @@ In **Kitchen Chaos**, you'll have access to a fully equipped kitchen with a cutt
 
 Once you've prepared the perfect assortment of toppings, head over to the sizzling stove and take charge of cooking the perfect patty. Watch as it sizzles and sears to perfection, ensuring that it's juicy on the inside and delightfully crispy on the outside.
 
+
+![Alt Text](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExOTgzMGVmMmNjYmM2NTVlODYyODE2Y2Q3OTlkOGIxZWNjM2E1NDc4YyZlcD12MV9pbnRlcm5hbF9naWZzX2dpZklkJmN0PWc/5ZUjEejqnqsynCEJsv/giphy.gif)
+
+
 ## Unleash Your Creativity
 
 But the real magic happens when you combine all the elements together. Experiment with different combinations of ingredients and toppings to create your very own signature burger. Let your imagination run wild as you stack layers of flavor, adding sauces, cheeses, and other delectable extras to achieve burger perfection.
 
 
 ![Alt Text](https://media1.giphy.com/media/r7Wy1KBjGnnwri2WEB/giphy.gif)
-
 
 
 ## Unlock Exciting Rewards
