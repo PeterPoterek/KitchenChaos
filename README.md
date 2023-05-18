@@ -13,6 +13,8 @@ Once you've prepared the perfect assortment of toppings, head over to the sizzli
 ## Unleash Your Creativity
 
 But the real magic happens when you combine all the elements together. Experiment with different combinations of ingredients and toppings to create your very own signature burger. Let your imagination run wild as you stack layers of flavor, adding sauces, cheeses, and other delectable extras to achieve burger perfection.
+
+
 ![Alt Text](https://media1.giphy.com/media/r7Wy1KBjGnnwri2WEB/giphy.gif)
 
 
